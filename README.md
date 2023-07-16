@@ -1,7 +1,7 @@
 <div align="center">
 
 
-[dịch vụ internet của FPT]([https://tutruyenchu.com/danhsach/truyen-dam-my-hay](https://myfpthungyen.com/))
+[dịch vụ internet của FPT](https://myfpthungyen.com/))
 </div>
 
 Lan và Tâm, hai người bạn thân từ thời còn học cấp ba, luôn chia sẻ mọi điều trong cuộc sống. Sáng nọ, cả hai ngồi cùng nhau trên bục ghế xinh xắn trước cửa hàng trà sữa yêu thích.
